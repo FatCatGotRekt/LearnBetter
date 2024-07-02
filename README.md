@@ -54,7 +54,7 @@ To explore nskolar and unlock a world of knowledge, follow these steps:
 
 ## Contact Us
 
-We are dedicated to providing exceptional support and addressing any inquiries you may have. Please don't hesitate to reach out to us at patwarinavin9@gmail.com for any assistance or feedback.
+We are dedicated to providing exceptional support and addressing any inquiries you may have. Please don't hesitate to reach out to us at aggrawalkrishna@gmail.com for any assistance or feedback.
 
 ## License
 
